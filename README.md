@@ -1,1 +1,1 @@
-[![Linkedin Badge](https://img.shields.io/badge/-LinkedIn-blue?style=flat&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/mwlite/in/kerem-jovielly/)]([https://www.linkedin.com/mwlite/in/kerem-jovielly/](https://www.linkedin.com/in/dlramos021098/)
+
